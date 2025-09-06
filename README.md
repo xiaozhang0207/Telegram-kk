@@ -2,7 +2,7 @@
 Telegram 钓鱼盗号系统
 
     即可直接登录鱼苗TG账号，自由通信
-    感兴趣可以直接通过邮件联系我：xiaozhangkOk@gmail.com
+    飞机：@XiaozhangKKtwo
     
 功能包含  
 
